@@ -1,4 +1,4 @@
-# 
+# secure NFT Trading Bot for blur sniper bot | simulation-mode & gas-optimization offers the most advanced blur sniper bot, with simulation-mode and gas-optimization. Ideal for
 
 
 
